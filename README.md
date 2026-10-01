@@ -1,0 +1,2 @@
+# premium-ikat-silk-001-ikat-resist-binding-registra
+Professional heritage-silk-weaving Notion template — without the professional price tag.  Fully documented: every section explained so you know exactly what to customize. Pre-built databases, views, and formula fields — ready to duplicate and use.  ## What's Included  - Ikat Resist Binding &amp; Registration Alignment Log — fully configured and ready t
